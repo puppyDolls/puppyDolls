@@ -1,1 +1,2 @@
-![♡](https://i.postimg.cc/bJc03fRx/1000000680.png) 
+![♡](https://i.postimg.cc/jd7xrV6w/1000000713.png) 
+⠀⠀⠀⠀⠀[discord]()⠀⠀➷⠀⠀[rentry](/pupshit)
