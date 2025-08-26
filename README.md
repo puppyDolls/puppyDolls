@@ -1,3 +1,3 @@
 ![♡](https://i.postimg.cc/8zJCZ6sr/Untitled186-20250724160133.png) 
-⠀⠀ʚଓ⠀⠀⠀⠀⠀[d](https://rentry.co/qu1ck)irect⠀⠀⠀•⠀⠀⠀[n](https://neospring.org/soul.)eospring
-⠀⠀⠀⠀⠀⠀[?]() I LOST MY NEWSPRINT 🙏🙏🙏 WILL BE RMKING IT ON FREETIME
+⠀⠀ʚଓ⠀⠀⠀⠀⠀[d](https://rentry.co/qu1ck)irect⠀⠀⠀•⠀⠀⠀[r](https://revospring.net/@Puppydolls.)evospring
+⠀⠀⠀⠀⠀⠀[?]()
